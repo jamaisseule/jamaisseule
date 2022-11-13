@@ -1,4 +1,4 @@
-- 👋 **Hi there ~**
+- 👋 **H I  T H E R E ~
 - 👀 *just another dreamer*
 - 💞️ *to infinity and beyond*
 
