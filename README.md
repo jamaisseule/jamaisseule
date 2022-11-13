@@ -1,4 +1,4 @@
-- 👋 **~ B E L L O ~**
+- 👋 ~ B E L L O ~
 - 👀 *just another dreamer* 😗
 - 💞️ *to infinity and beyond* 😎
 
