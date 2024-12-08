@@ -1,6 +1,5 @@
 - 👋 ~ B E L L O ~
-- 👀 *just another dreamer* 😗
-- 💞️ *to infinity and beyond* 😎
+- 👀 *to infinity and beyond* 😎
 
 <!---
 jamaisseule/jamaisseule is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
